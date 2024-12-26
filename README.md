@@ -1,1 +1,1 @@
-# geopartic1.github.io
+IMG_20241225_145232_168.jpg
